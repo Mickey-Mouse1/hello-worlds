@@ -1,2 +1,6 @@
 # hello-worlds
-second one since i forgot everything with the first. 
+
+Hey peeps!
+Just another homo-sapien here. I guess I'm pretty normal.
+I like to cook, read, write, explore, and fashion.
+Pretty simple if ya tell me. 
